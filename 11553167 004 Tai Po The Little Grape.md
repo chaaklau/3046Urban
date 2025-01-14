@@ -1,0 +1,1 @@
+This photo was taken in the Tai Po police office. and this grape is an anti-scam mascot called “The Little Grape”. It is essentially the cartoon version of a piece of grape.

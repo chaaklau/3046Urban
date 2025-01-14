@@ -1,0 +1,1 @@
+This photo shows the Tai Po Market bus stop, which features clear signage for the 74K and 275R bus routes. A bus is on the platform, and it seems the bus is leaving. 
