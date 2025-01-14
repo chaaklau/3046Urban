@@ -1,0 +1,1 @@
+Being the sole internet cafe in Tai Po, this establishment serves as a haven for students without personal computers. Renowned as the ultimate relaxation spot, it offers a conducive environment for academic pursuits and leisurely browsing. With its modern facilities and cosy ambience, it ensures a productive and enjoyable experience for all patrons.
