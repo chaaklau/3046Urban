@@ -1,0 +1,1 @@
+libraries are places for students to review coursework and discuss projects. One day during the time of discussing a group project with my peers, I accidentally discovered that there was a room on the second floor of the library dedicated to providing gaming experience. The set-up looked great, in my eyes, perhaps because of the rgb lights of the computer and that gaming chair. 

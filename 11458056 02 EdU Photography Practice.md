@@ -1,0 +1,1 @@
+This is a photo taken last September for the photography course registered last semester. The first lesson the course required students to take pictures around different areas of the campus and hand it to the lecturer for reviewing the photography skills such as composition and angle. I randomly picked something that showed contrast.
