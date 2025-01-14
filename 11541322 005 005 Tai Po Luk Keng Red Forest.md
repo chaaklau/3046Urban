@@ -1,0 +1,1 @@
+This is the red forest in the lek Kung. One of the hiking path’s amazing view. The red forest is still healthy and fully grown in the sea, and there are the view of Guang Zhou in the opposite of it. It just like the grass on the top of the sea with the good weather of the day. It is one of the famous hiking route and people can taste local food while they nearby to the village.

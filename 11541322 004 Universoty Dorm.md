@@ -1,1 +1,1 @@
-This is the dorms in the university and there are again, the moon I like a lot was captured in 
+This is the dorms in the university and there are again, the moon I like a lot was captured in the photo. I like the view of the university and the dorm. You can see the dorm are separated and it is in a stairs shape which is quite iconic. I like the shape of it but it is a bit troublesome to go back to your room cause it requires more time to change elevators.
