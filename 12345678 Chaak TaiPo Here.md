@@ -1,0 +1,1 @@
+Taipo used to be a rural area and now we have tall residential buildings hahahah.
