@@ -1,0 +1,1 @@
+The picture shows our university hallway with lockers on each side. It’s bright and tidy. The floor has green and orange tiles while the lockers are cream in colour. This hallway helps students move between classes and gives them a place to store their things. We can also see some students hanging their keychains on their lockers to show off their personality
