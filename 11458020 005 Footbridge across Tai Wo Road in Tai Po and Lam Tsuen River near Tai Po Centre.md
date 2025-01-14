@@ -1,0 +1,1 @@
+Last semester, it came to my attention that the bridge violated government standards due to its lack of a tactile guide path. This absence not only posed a challenge for visually impaired individuals but also raised concerns regarding accessibility and safety regulations. Addressing this issue became imperative to ensure compliance and inclusivity for all pedestrians.
