@@ -1,0 +1,1 @@
+Tsz Shan Monastery is a Chinese Buddhist monastery established to preserve the inheritance of the Dharma preached by Śākyamuni Buddha. The monastery is notable for its 76-meter tall bronze-cast statue of Guan Yin, a revered figure in Buddhism. Moreover, this monastery is located near EDUHK, but most of the students haven't gone there yet.
