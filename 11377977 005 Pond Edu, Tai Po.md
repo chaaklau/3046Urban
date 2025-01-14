@@ -1,1 +1,0 @@
-This is our university pond area which featuring a calming landscape of rocks, water, and mountains. It is captured at 8 AM in the morning. Thus, we can the bright sunlight shining on the surface. Nearby, tall hills and lush greenery creates a inviting relaxation, study place or a place where students can enjoy their snacks/lunch.

@@ -1,1 +1,0 @@
-This picture shows our university library. There are yellow chairs and tables where students are sitting, studying or relaxing. The library is bright because of the bright lights and big windows that let in the natural light. The design of the library feels open and welcoming, making it a nice place for students to work/read or relax
