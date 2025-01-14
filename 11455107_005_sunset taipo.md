@@ -1,0 +1,2 @@
+If you ever end your classes in the evening, you might come across spectacular displays in the celestial atlas as you head for the bus stop.
+Even if the campus is located in a rather "rural" area of Hong Kong, there is no hope of stargazing (because of our unfortunate sensitivity to light), so the closest you can get are pink hues in the sky or the moon looking closer than usual.
