@@ -1,0 +1,1 @@
+This picture was taken on my way back to the dormitory after class one day. I noticed that the sky was very beautiful that day. The trees on both sides of the school driveway and the cars parked on the roadside are all very bright and indispensable parts of this picture.

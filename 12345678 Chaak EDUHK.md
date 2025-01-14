@@ -1,1 +1,0 @@
-The Education University is the best University in the world!!!
