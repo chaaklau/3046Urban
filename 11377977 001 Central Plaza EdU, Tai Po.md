@@ -1,0 +1,1 @@
+The photo shows a cold morning with the sun coming up over the mountains. In the front, there's a building with beams and a curved roof. Below, wwe can see a person is walking alone. The sunlight creates long shadows, giving a clear and fresh feel to the early morning.
