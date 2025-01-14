@@ -1,0 +1,1 @@
+In the classroom, I sit quietly as the teacher speaks, but I can’t grasp a word. The concepts float around me, leaving me feeling lost and confused. I glance at my classmates, hoping for a sign of understanding, but I’m just trying to stay afloat in a sea of information.

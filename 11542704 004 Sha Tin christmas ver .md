@@ -1,0 +1,1 @@
+In Sha Tin Plaza, I find myself surrounded by twinkling Christmas ornaments, feeling the festive spirit all around. Watching people skate, I smile at their laughter and joy. It’s a beautiful scene, just me soaking it all in, enjoying the magic of the season and the warmth of the moment.
