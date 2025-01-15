@@ -1,1 +1,0 @@
-This was my first music class at school. I arrived at the classroom five minutes early. I was the only one in the classroom. The scale of this classroom was very different from other ordinary classrooms. It was in the library.

@@ -1,1 +1,0 @@
-This photo is a landscape photo I took when I first came to the Education University of Hong Kong and entered the dormitory room for the first time. As soon as I left the room, I was attracted by the mountains and dense forests surrounding the Education University of Hong Kong.

@@ -1,1 +1,0 @@
-This picture was taken when I was racking my brains to write a paper. I looked out the window. The scenery of the school and the sunset glow intertwined to form a perfect picture. It was very beautiful.

@@ -1,1 +1,0 @@
-This picture shows three souvenirs that my academic planning tutor gave me after my first interview. There are refrigerator magnets and brooches.
