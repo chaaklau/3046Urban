@@ -1,0 +1,3 @@
+This is the ECLC located near EDUHK, the visit took place in year 1, we learnt about the curriculum and the teaching style of the early childhood learning center.
+through the visit, I learnt that the center's curriculum promotes learning through exploration and concrete experiences, and provides a learning environment that emphasizes development in both the cognitive and affective domains.
+the design of the center is very child-friendly and it can be seen that the children enjoy their time at the center learning through many different ways.

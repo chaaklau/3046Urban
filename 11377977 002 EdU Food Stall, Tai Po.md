@@ -1,0 +1,1 @@
+The photo shows our university featuring a free food stall with a line of people waiting to try the food. The stall has signs showing items like "Margherita Pizza" and "Mixed Salad," and several people are involved in serving and organizing. The environment is looking lively and well-organized, with a tiny tent and tables holding the food.

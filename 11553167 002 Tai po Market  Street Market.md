@@ -1,0 +1,1 @@
+It is a shot of the night scene of the Tai Po Market street, full of people just strolling in the vibrant market. Bright shopfronts light up the entire avenue, making it vibrant among the buildings.

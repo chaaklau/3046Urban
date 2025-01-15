@@ -1,0 +1,1 @@
+The image shows the entrance of EdUHK, where you can see the school's logo and a notice board, along with a beautifully trimmed small garden. In the background of the picture, you can see the foundation building and the entrance to the consultation center. This picture was taken in the afternoon, and the sunlight is not very prominent.

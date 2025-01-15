@@ -1,0 +1,1 @@
+Sitting in the EduHK library at midnight, I’m working on my assignment. The place is quiet, just me and the soft glow of my laptop. I can’t sleep, but I’m trying to focus. The peaceful atmosphere helps me concentrate, even if my eyes feel heavy. I just want to finish.

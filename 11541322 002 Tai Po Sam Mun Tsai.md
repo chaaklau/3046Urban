@@ -1,0 +1,1 @@
+This is a photo I took when I was in the bus. I saw there are ships and boats in the sea and it is not common to see such view in HOng Kong so I took a quck photo in the bus while it is leaving. I wish i had more time to take  look in Sam Mun Tsui. It should be a nice place to make as a visit. Anyways, it is a good photo on knowing how the place look like simply. 
