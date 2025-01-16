@@ -1,1 +1,1 @@
-Tai Po Market Station is a transportation hub serving the Tai Po area in Hong Kong, providing easy access to the vibrant Tai Po Market and surrounding attractions.
+Tai Po Market Station is a transportation hub serving the Tai Po area in Hong Kong, providing easy access to the vibrant Tai Po Market and surrounding attractions. I used to go there to take the subway to other places. So every time I went there I felt so excited. There are a lot of snack shop or beverage shop so that people can enjoy a cup of coffee at this station.
