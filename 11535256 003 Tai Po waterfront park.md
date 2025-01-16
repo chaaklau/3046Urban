@@ -1,2 +1,1 @@
-This park is a natural location which provide cycling path and habour views for both local people and visitors.Citizens can have a picnic and do some exercises in this park.
- 
+The scenery in this park is beautiful with fresh air,  Citizens can cycle or take a walk along the seaside.And I always listen to music while walking which makes me feel happy. There are many adorable dogs. Last time I had a relax time there, I cycle along the coastline and saw the amazing sunset.
