@@ -1,0 +1,1 @@
+This place is a bustling traditional market located in the Tai Po district. It offers a wide variety of fresh produce and cooked food, such as seafood, dim sum. This busy place attracts many local people to try tasty food, especially for the elderly. I went there last time for drinking tea and eating dim sum which has a good flavor.
