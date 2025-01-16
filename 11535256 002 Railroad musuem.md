@@ -1,1 +1,1 @@
-There are so many visitors to the museum explore the history of hongkong railway station, showing the evolution of Hong Kong's railway system.
+Many visitors go to the museum to explore the history of hongkong railway station, as this museum exhibits the photograph that can help people realise the evolution of Hong Kong's railway system. I went there with my friends last summer and I felt it is a good place to explore more about Hong Kong which is a city integrates the ancient with the modern.
