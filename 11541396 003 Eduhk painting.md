@@ -1,0 +1,1 @@
+Every student put their heart into their creations, expressing their dreams and feelings. Seeing all those colorful artworks hanging on the wall fills me with pride and emotion. It not only strengthens the friendships among us but also makes our campus more vibrant and beautiful.
