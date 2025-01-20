@@ -1,0 +1,1 @@
+The Hong Kong Railway Museum is located at the historic former Tai Po Market Railway Station, showcasing a fascinating collection of old trains and railway artifacts. My roommates and I visited this unique museum to explore its rich history, admire the vintage trains, and learn more about Hong Kong's railway heritage.

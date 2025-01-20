@@ -1,0 +1,1 @@
+During the promotion period, my teammates and I worked diligently to create an eye-catching booth in C-LP. We put in great effort to design and assemble everything, including this vibrant poster wall we proudly made. The Anime Society is a fantastic and enjoyable community, bringing fans together to share their passion!

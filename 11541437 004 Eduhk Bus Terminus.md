@@ -1,0 +1,1 @@
+The EdUHK bus terminus is an important transportation hub for students, staff, and visitors, offering convenient bus and minibus routes to Tai Po, Tin Shui Wai, Tuen Mun, Tsuen Wan, and Kwun Tong. In this picture, a fireman is carefully removing a bee hive to ensure the safety of everyone.
