@@ -1,0 +1,1 @@
+EduHK has a 7-a-side football field with artificial grass. But, because of the ongoing construction of the new building, one side of the field is cropped. I wonder if it is the reason why it is empty most of the time as it is very unusual to see a high quality field being left unused.

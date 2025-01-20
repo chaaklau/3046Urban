@@ -1,0 +1,1 @@
+When it comes to racket sports, squash falls behind badminton, table tennis, and tennis. But the sport has its own merits as you have a better chance to book a squash court than the other three, and you can play the sport alone with the assistance of the 4 walls.
