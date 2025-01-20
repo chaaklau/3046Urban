@@ -1,1 +1,0 @@
-There was once a railway station in Tai Po Market up until the establishment of the MTR station in 1983. Unfortunately, the new station has a history of wide platform gaps - and my older cousin was once the victim as he fell through while boarding, and the platform gates were installed this year, finally.
